@@ -2,8 +2,8 @@
 - 👀 I’m interested in best cs tactic)
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
-- 😄 Pronouns: ..
+- 📫 How to reach me ..gfdjhukil;odrgf
+- 😄 Pronouns: .
 - ⚡ Fun fact: i wanna pizza))) haha
 <!---
 AlexDairy0/AlexDairy0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
