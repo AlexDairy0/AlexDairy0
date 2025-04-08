@@ -1,6 +1,6 @@
 - 👋 Hi, I’m AlexDairy0
 - 👀 I’m interested in best cs tactic)
-- 🌱 I’m currently learning ...e76tjnsrthjuk
+- 🌱 I’m currently learning ...hbjyugvhbiyuio
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me .yujmtdmntyj
 - 😄 Pronouns: .)juvfdhuew
