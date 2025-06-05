@@ -2,7 +2,7 @@
 - 👀 I’m interested in best cs tactic)
 - 🌱 I’m currently learning ...gfdrtyuhi
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me .stydfgyughj
+- 📫 How to reach me .stdrtfyg
 - 😄 Pronouns: .)juvfdhuew
 - ⚡ Fun fact: i wanna pizza))) haha
 <!---
